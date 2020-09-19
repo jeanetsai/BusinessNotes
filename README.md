@@ -1,0 +1,2 @@
+# BusinessNotes
+Business and negotiation
